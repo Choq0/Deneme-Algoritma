@@ -1,2 +1,2 @@
 # Deneme-Algoritma
-New Begin
+New Begin for me
